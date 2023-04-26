@@ -3,4 +3,4 @@
 Group project 2 
 👤Samir Ibrahim 
 and 
-👤Nimi Williams
+👤Taiyelolu Abiri
